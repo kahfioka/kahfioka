@@ -2,7 +2,7 @@
 
 # Hi there, I'm Kahfi - Kurnia (https://www.youtube.com/channel/UCGglgDqtDAftO4ouGADBm3g) 👋
 ## About me:
-- 🔭 I’m currently working as Call Center
+- 🔭 I’m currently working as Call Center Bank
 - 🌱 I’m currently job descriptions, taking phone calls and receiving complaints thoroughly, answering all questions politely, providing solutions to complaints and providing communicative information
 - 👯 I’m looking to collaborate as Data Automation and Analyst
 - 🤔 I’m looking for suggest for Ideas, comunication skill
@@ -17,15 +17,15 @@
    
 
 ## Work Experience:
-#### 1. [PT. Bank Mayapada] (https://www.bankmayapada.com)| Call Center credit Card | Jakarta `Feb'2019 - Now`
+#### 1. [PT. Bank Mayapada] (https://www.bankmayapada.com)| Call Center Bank | Jakarta `Feb'2019 - Now`
    - Integrate Accuracy Plan, taking phone call and receive, give solution in probleme, and responsibility
    - Responsible to improve and realize complaint as timeline
    - integrate in skill comunication
-#### 2. [PT. bank Danamon](https://www.danamon.co.id) | Call Center Credit Card | Jakarta `2016-2019`
+#### 2. [PT. bank Danamon](https://www.danamon.co.id) | Call Center Bank | Jakarta `2016-2019`
    - responsible to improve complaint 
    - Manage to faster problem
    - Good skill in comunication
-#### 3. [PT. Bank BNI] (https://www.bni.co.id) | Customer Service | Jakarta `2016`
+#### 3. [PT. Bank BNI] (https://www.bni.co.id) | Call Center Bank | Jakarta `2016`
 #### 4. [SDN n 1 Sungai Sirah] | Staf Sport Teacher  | Pariaman `2015`
 ---
 
