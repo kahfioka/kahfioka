@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-# Hi there, I'm Kahfi - Kurnia [](https://www.youtube.com/channel/UCGglgDqtDAftO4ouGADBm3g) 👋
+# Hi there, I'm Kahfi - Kurnia (https://www.youtube.com/channel/UCGglgDqtDAftO4ouGADBm3g) 👋
 ## About me:
 - 🔭 I’m currently working as Call Center
 - 🌱 I’m currently job descriptions, taking phone calls and receiving complaints thoroughly, answering all questions politely, providing solutions to complaints and providing communicative information
